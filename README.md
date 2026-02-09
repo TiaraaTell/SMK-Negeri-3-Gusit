@@ -1,0 +1,1 @@
+# SMK-Negeri-3-Gusit
